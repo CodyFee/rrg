@@ -16,7 +16,8 @@ Sit back relax, and take in the sites of the scenic Red River Gorge safe from th
 [Gateway to the Gorge](https://www.google.com/maps/place/Nada+Tunnel/@37.8171538,-83.684172,903m/data=!3m1!1e3!4m5!3m4!1s0x884382039d447efd:0x2fa36f0b5796ec56!8m2!3d37.8171538!4d-83.6819833)
 
 
-![The Nada Tunnel!](http://www.jimpearsonphotography.com/wp-content/uploads/2017/05/WEB-05.22.17-Nana-Tunnel-01-Red-River-Gorge-Ky.jpg)
+![The Nada Tunnel!](http://www.jimpearsonphotography.com/wp-content/uploads/2017/05/WEB-05.22.17-Nana-Tunnel-01-Red-River-Gorge-Ky.jpg)    
+<!-- Source of photo? -->
 
 
 ### Sources
